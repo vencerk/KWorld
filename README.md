@@ -1,2 +1,2 @@
 # KWorld
-The Best One.
+The best college student exchange center.
